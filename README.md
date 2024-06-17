@@ -1,6 +1,6 @@
 ## Seja bem-vindo(a) para jurassicas merd...my life :D
 
-Sou um* estudante, gosto de exatas...mesmo que eu não goste muito de T.I
+Sou um* estudante, gosto de exatas...mesmo que eu não goste muito de T.I. 
 Amo séries como The owl House, StarVSAs forças do mau, Steven Universe, Gumball, Bluey e entre outros. Gosto de ler livros de Genêro um tanto quanto duvidosos erriesi.
 Estado de SP.
 Gosto de expressar oque sinto em desenhos, quanto pior minha situação MAIS bonito a obra.
